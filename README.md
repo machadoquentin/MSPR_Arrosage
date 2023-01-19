@@ -4,4 +4,5 @@
  Pierrick Bauffe 
  Thibault Balleux 
  Quentin Machado 
- Louis Hanquiez ```
+ Louis Hanquiez 
+ ```
