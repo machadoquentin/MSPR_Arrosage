@@ -1,4 +1,4 @@
-Pierrick est un gros rasslar
+Pierrick est un gros beau gosse
 
 Machado a like la daronne à tibo
 
